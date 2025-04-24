@@ -1,1 +1,1 @@
-Hello I'm Ahmet, Mechatronics Engneering Student at ITU
+Hello I'm Ahmet, Msc of Mechatronics Engneering Student at ITU
